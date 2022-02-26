@@ -1,0 +1,1 @@
+-- hello im roblox player and i will post scripts here          enjoy 😘
